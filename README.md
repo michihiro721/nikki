@@ -2016,3 +2016,23 @@ https://diet-maker.jp/training-details/417?date=2025-05-22
 　投票のほどよろしくお願い致します！！
 https://chat.runteq.jp/runteq/channels/6th_runteq_festival 
 
+
+日時：5月22日(木)
+
+学習内容：学習開始から271日目 　 学習時間（プログラミング）：7時間00分（合計：1701.5H）
+※技術サポーターのお仕事
+
+自己啓発（プログラミング以外）：0時間0分 
+・筋トレ：オフ（体調が優れなかった） トレーニング記録👇
+https://diet-maker.jp/training-details/417?date=2025-05-22
+・マーケティングの勉強：0時間0分(157.5H)
+
+振り返り： 
+・今日はあまり体調が優れなかったので、
+　技術サポーターの仕事だけやった。
+・ランテック祭のアプリの投票が25日までなので、
+　投票のほどよろしくお願い致します！！
+https://chat.runteq.jp/runteq/channels/6th_runteq_festival 
+
+
+
